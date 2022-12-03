@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sedkaay
 - 👀 I’m interested in homosexual Gangrapes
-- 🌱 I’m currently learning to swallow
+- 🌱 I’m currently learning how to swallow 
 - 💞️ I’m looking to collaborate on my couch
 - 📫 How to reach me gayfurry69@grinder.com
 
